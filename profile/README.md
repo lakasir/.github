@@ -3,3 +3,5 @@
 * Landing page: https://lakasir.com
 * Documentation page: https://lakasir.com/docs
 * Support page: https://lakasir.com/support
+
+Buy the creator of o coffe [buymeacofee](https://www.buymeacoffee.com/sheenazien8)
