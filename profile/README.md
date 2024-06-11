@@ -4,4 +4,4 @@
 * Documentation page: https://lakasir.com/docs
 * Support page: https://lakasir.com/support
 
-Buy the creator a cup of o coffee [buymeacofee](https://www.buymeacoffee.com/sheenazien8)
+Buy the creator a cup of coffee [buymeacofee](https://www.buymeacoffee.com/sheenazien8)
