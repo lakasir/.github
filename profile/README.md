@@ -73,3 +73,9 @@ If you need help or have any questions, please visit our [Support Page](https://
 If you have any additional questions or need further assistance, feel free to reach out to us at [lakasirapp@gmail.com](mailto:lakasirapp@gmail.com).
 
 Thank you for your interest in Lakasir! We look forward to your contributions and support in making Lakasir the best POS solution for businesses.
+
+
+## Donate for live longer
+
+[<img src="https://trakteer.id/images/v2/trakteer-logo.png" alt="drawing" width="100"/>](https://trakteer.id/sheenazien8/tip?quantity=1)
+<a href="https://www.buymeacoffee.com/sheenazien8" target="_blank"><img src="https://cdn.buymeacoffee.com/buttons/v2/default-green.png" alt="Buy Me A Coffee" style="height: 20px !important;width: 100px !important;" ></a>
